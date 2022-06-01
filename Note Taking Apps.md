@@ -1,0 +1,2 @@
+- Check out Athens Research
+- Need to remember to eat well before test to focus
